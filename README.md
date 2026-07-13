@@ -1,4 +1,4 @@
-# World's least fancy designer.
+> World's least fancy designer.
 15+ years of experience as a designer known for a straightforward design approach.
 
 * Architecting software for tech teams.
