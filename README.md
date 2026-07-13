@@ -8,34 +8,25 @@
 
 Contributed, among others, to projects for Vodafone, Olympic Brewery, Viohalco, Anecdote International, and People Model Canvas.
 
-2022 ─ Now
+* 2022 ─ Now 
 Product Designer - Q7LEADER
-
-2017 ─ Now
+* 2017 ─ Now
 Fractional Product Designer - Creativa
-
-2023
+* 2023
 OKR Certification: Leadership and Goal Setting - What Matters
-
-2018 ─ 2021
+* 2018 ─ 2021
 Product Designer - Horizon365
-
-2017 ─ 2018
+* 2017 ─ 2018
 Digital Designer - Sheepfish
-
-2012 ─ 2017
+* 2012 ─ 2017
 Freelance Designer - OUGK
-
-2010 ─ 2015
+* 2010 ─ 2015
 Digital Designer & Webmaster - Tiniaki
-
-2010
+* 2010
 Design Intern - Advanced Advertising
-
-2008
+* 2008
 Web Communication using Dreamweaver - Adobe
-
-2005 ─ 2009
+* 2005 ─ 2009
 BSc in Marketing - TEI of Thessaloniki
 
 Reach me at [contact@nikosfoskolos.com](mailto:contact@nikosfoskolos.com).
