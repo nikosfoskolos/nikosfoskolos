@@ -9,7 +9,7 @@
 
 Contributed, among others, to projects for Vodafone, Olympic Brewery, Viohalco, Anecdote International, and People Model Canvas.
 
-* **Product Designer** @ Q7LEADER / 2022 ─ Now 
+* **Product Designer** @ Q7LEADER / [2022 ─ Now](tooltip "4+ Years")
 * **Fractional Product Designer** @ Creativa / 2017 ─ Now
 * **OKR Certification** @ What Matters / 2023
 * **Product Designer** @ Horizon365 / 2018 ─ 2021
